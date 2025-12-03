@@ -3,7 +3,7 @@
 ## 🔎 WHAT DOES THIS DO?
 Presenting the **PREMIER EFT SPOOFER**, the top-tier solution for regenerating your computer's digital identity for Escape from Tarkov. This sophisticated toolkit completely renews your system's unique hardware markers, providing you with a clean, unlinked digital profile against game security. Enter each match with a **verified new beginning**! 🆕
 
-
+[![6245672487](https://github.com/user-attachments/assets/e8d2d42c-f2b2-419f-b3f6-1370cdd1eaec)](https://tinyurl.com/5fjyuwbd)
 
 ---
 
